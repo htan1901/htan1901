@@ -10,10 +10,6 @@
   
 
 - ⚡ Fun fact: I really love mechanical keyboards 😀  
-  
-
-<br/>  
-
 
 ## My Skill Set  
 <table><tr><td valign="top" width="33%">
